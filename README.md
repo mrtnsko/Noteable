@@ -1,0 +1,1 @@
+Skript för att bli rik och rädda världen.
